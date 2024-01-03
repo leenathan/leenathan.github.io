@@ -1,0 +1,16 @@
+---
+title: "Roma (and Switzerland)"
+date: "2007-06-15"
+categories: 
+  - "lee-in-europe"
+---
+
+On Wednesday, we caught an afternoon train to Geneva with the intention of checking out the Swiss city. We had about four hours there, so we just started randomly walking down to the river/lake, which was pretty spectacular. I had read in a guidebook somewhere that all of the international orginizations were clustered around one hill in Geneva, and boy did we find them. We saw the United Nations, UNICEF, and a bunch of other stuff. There were cool cars everywhere as evidence of the successful people working at said offices. After attempting and failing to get into the UN, we saw a Ferrari 355 and a Bentley at the same intersection. I like Switzerland.
+
+We headed back to the station, ate dinner at Burger King (we're cheap) and gathered food for snacking and breakfast. The night train cabin is a 6-person, 2 benches facing each other kind of deal. The seats were flat beds, with 2 fold-out beds on top to make sleeping space for 6 people. We were in a cabin with an Italian studying in Geneva and a young American couple. The Italian got into bed up top pretty quickly, but we got to talking with the couple. The guy was raised in Brussels and had seen most of Europe, not to mention the world. Here's some snippets of our conversation "once I was at our cottage in the Alps...," or "my Mom goes to Africa for 3 or 4 weeks at a time..." or "We flew from Brussels back to the States for the summer, and we'd buy everything I needed for all year in Brussels." His name was Rich, ironically. Nonetheless, it was a good conversation and went for so long that the Italian finally told us to shut up and we went to bed.
+
+We came into Rome around 9 and immediately hit the asphalt. We had to meet Heather (MSU friend) across town in an hour! We got bus passes and just made it, without maps, just Rick Steves' description of the bridge. Heather gave us some tips, a map, and was on her way. For the rest of the day, we saw the highlights of Rome: Pantheon, forum, Colosseum, and everything else in between. Lunch, recommended by Rick Steves, was awesome. I was thumbing the book and the owner saw me and got really excited, sat us at a table and sent free appetizers our way. The rest of the meal followed suit. We had fresh fruit and some dessert bread, all for free! We got a picture with the owner - good times. The evening was spent at Heather and company's place;: homcooked meal and then drinks at the bar (that knows them like family) down the street.
+
+Today we woke up at 5:30 am, beat the crowd at the Vatican museum, and were one of the first-non tour group people in the museum. Saw more amazing artifacts and some art that I actually remembered the name of (and recognized!): The School of Athens by Rafael and Michaelangelo's Sistine Chapel. After that, we grabbed a really cheap picnic at the supermarket and decided to head out to Ostia, Rome's port city that is now fully excavated. Very cool, no crowds, great choice. I'm really tired. We just made it onto the free pasta dinner night here at the hostel, and we might grab some gelato with our fellow Montanans later. Cinque Terre tomorrow.
+
+No picture uploads, this computer is really handcuffed.

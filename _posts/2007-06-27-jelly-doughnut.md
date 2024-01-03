@@ -1,0 +1,12 @@
+---
+title: "Jelly Doughnut"
+date: "2007-06-27"
+categories: 
+  - "lee-in-europe"
+---
+
+So... Vienna day 2. I can't remember what happened. I've been doing this for so long that its all running together. Ack! Oh yeah that's right - in the morning we hit the Hapsburg treasury: medieval treasures innumerable. Robes with silver and gold threads, coronation crowns loaded with gold and gems, and Narwhal tusks. Slick. In the afternoon we headed out to a hill overlooking the city and had a pretty good view of Vienna's sprawl. We headed back to town and caught dinner just down the street at a killer Austrian restaurant (with hosteller pricing!). I had a plate of various meat, veggies, fries, and some cabbage. When we left, that plate was clean.
+
+We woke up at 4:30 or something ridiculous the next day to catch a train across town. It was one of the trains where you're in a compartment with 5 other people. We had it to ourselves for a few hours to sleep, then met a cool Dutch couple and talked with them for the rest of the train to Berlin. Berlin brought a new transportation system to learn. The train stopped at Hauptbahnhof, the massive central station for Berlin: very clean and very organized (I could tell from the start that I would like Berlin). It was raining on and off; we spent the afternoon hanging around the hostel and had dinner at a cheap pizza place down the road. The cook was playing FIFA Manager!
+
+Today we hit our third 'New Europe' tour, a free biking tour around Berlin. It was nice - saw all the sites and got to bike around. I like doing a guided tour first to help get my bearings in a city. It gave us some ideas about what we want to see later. We had a break at a beer garden in the Tiergarden. After the tour, we ate lunch at the hostel and headed back out. We checked out the grocery store in the biggest department store in Europe, and headed for Checkpoint Charlie. After getting slightly disoriented, we saw the Topography of Terror exhibit on the site of the former SS and Gestapo buildings. We found Checkpoint Charlie and saw that museum. Finally, we made it to the Reichstag just in time to make it to the top of the dome. The architecture there is amazing: a glass dome with ascending ramps to the top. A cone of mirrors dips down into the glass roof above the parliament chamber, as a symbol of the people being able to watch over their government. From the top, it was an excellent night view of Berlin, too. All for free. That's how we roll.
